@@ -1,2 +1,0 @@
-# ashtonyphoto.github.io
-photos
